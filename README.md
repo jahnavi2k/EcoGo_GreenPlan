@@ -2,4 +2,5 @@
 
 ## Presentation materials
 
-### [Demo Video](https://www.youtube.com/watch?v=TpNdpTwxQho)
+### [Demo Video](https://youtu.be/fFiSlHcPuYk)
+
